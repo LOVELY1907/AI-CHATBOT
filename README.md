@@ -159,7 +159,5 @@ Third-year Engineering | Cybersecurity | AI/ML | IoT | Blockchain learner
 
 
 
-<img width="901" height="543" alt="Screenshot 2025-11-24 191839" src="https://github.com/user-attachments/assets/0811c2e0-7835-43e9-9cc3-08cce083f3ae" />
-
 
 
