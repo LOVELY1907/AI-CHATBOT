@@ -158,16 +158,8 @@ Third-year Engineering | Cybersecurity | AI/ML | IoT | Blockchain learner
 “Programming isn't about what you know; it's about what you can figure out.” — Chris Pine
 
 
-<img width="901" height="543" alt="Screenshot 2025-11-24 191839" src="https://github.com/user-attachments/assets/d45c8086-20f5-4f04-8df4-369196da52a6" />
 
+<img width="901" height="543" alt="Screenshot 2025-11-24 191839" src="https://github.com/user-attachments/assets/0811c2e0-7835-43e9-9cc3-08cce083f3ae" />
 
-
-
-
-
-
-
-
-<img width="905" height="567" alt="Screenshot 2025-11-24 191855" src="https://github.com/user-attachments/assets/7f10d9bf-73f6-4c37-bac7-9986f6c492fa" />
 
 
